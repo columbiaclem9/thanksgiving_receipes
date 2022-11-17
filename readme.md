@@ -1,32 +1,40 @@
 ## Our favorite recipes 
 
-Apple pie 
-
-A Cozy Kitchen's Creamy Mac & Cheese
+Chocolate Coconut Pecan Pie 
 INGREDIENTS
-BREAD CRUMB TOPPING:
-1 cup bread crumbs
-1/4 cup unsalted butter
-1/2 teaspoon kosher salt
-PASTA + SAUCE:
-1/2 cup unsalted butter
-1/2 cup all-purpose flour
-5 cups milk (divided)
-1 tablespoon kosher salt
-1 teaspoon freshly ground pepper
-1/2 teaspoon smoked paprika
-1/2 teaspoon garlic powder
-1/2 teaspoon Dijon mustard
-16 ounces grated cheese (a combo of swiss (7 ounces)/comte (1 ounces)/raclette (5 ounces)/cheddar (3 ounces), divided
-1 pound of pasta of choice (I used cavatappi)
-TO MAKE THE BUTTERY BREAD CRUMBS:
-To a small saucepan, set over medium heat, melt the butter. When melted, add the breadcrumbs and a pinch of salt. Mix until the bread crumbs are thoroughly coated. Set aside.
-TO MAKE THE MACARONI AND CHEESE:
-Preheat oven to 350 degrees F. Butter your 6-quart casserole dish and set aside. Reserve 1/2 cup of the shredded cheese for the layering we're going to do with it! But I like to set it aside now so I don't forget.
-To a medium pot, set over medium heat, add the butter. When the butter has melted, add the flour and mix it together and cook the flour butter mixture for about 1 minute. Pour in the milk in two batches, stirring continuously in between additions.
-Cook until it thickens up, about 2 to 3 minutes. It’ll start to bubble up and thicken. Give it a good whisk and be sure to get in those corners of the pan to get any floury bits up and mixed in. It should be thick enough to coat the back of a spoon.
-Turn off the heat and whisk in the kosher salt, crushed red pepper, Dijon mustard and a few rounds of pepper. Add the grated cheeses and mix them in until they’re melted. Give it a taste and adjust the salt to taste. Cover the pot with a lid and set aside.
-Meanwhile, bring a pot of salted water to a boil. Cook the pasta according to the package’s instructions, about 6 to 7 minutes, until al dente.
-Drain the pasta and then immediately run it under cold water to get rid of some of the starch. Give it a shake in the colander to shake off some of the excess water and then add it to the pot with the cheesy sauce. Mix until thoroughly combined.
-Add half of it to the prepared baking dish and then sprinkle one layer of cheese. Then add the remaining macaroni on top and smooth it into an even layer and then top it with the reserved bread crumbs and remaining cheese.
-Transfer it to the oven to bake for about 40 to 45 minutes, until the macaroni and cheese is bubbling and golden brown on top.
+PIE CRUST
+1 1/4 cup all-purpose flour
+2 teaspoons white granulated sugar
+3/4 teaspoon kosher salt
+1/2 cup unsalted butter cold from the fridge
+1/3 cup very cold water divided
+BLACK BOTTOM
+4 ounces dark chocolate
+1/4 cup heavy cream
+FILLING
+1 cup packed dark brown sugar
+2 tablespoons all-purpose flour
+6 tablespoons unsalted butter melted and cooled to room temperature
+3/4 cup Karo® Light Corn Syrup
+3 large eggs (at room temperature)
+1 teaspoon pure vanilla extract
+1 teaspoon apple cider vinegar
+1 teaspoon kosher salt
+1 ¼ cup unsweetened shredded coconut
+2 cups pecans (wholes and halves)
+1 large egg (for egg wash) beaten
+
+INSTRUCTIONS
+TO MAKE THE PIE CRUST:
+In a large bowl, mix together the flour, sugar, and kosher salt. Using a box grater, grate the cold butter atop the flour mixture. Working quickly, and using your hands, break the butter bits into the flour until they’re evenly distributed and resemble the size of small peas. Add 50% of the recommended water and mix.
+The mixture will be shaggy at this point. From here, add 1 tablespoon of water at a time until the dough comes together. Flour your counter and dump the dough onto it. Gather the mixture into a rough ball and press down gently. Fold it in half and then half again, this will create some “layers”. Form the dough into a disc and wrap tightly with plastic wrap. Transfer to the refrigerator to chill for at least 1 hour, ideally overnight.
+TO ROLL OUT THE PIE DOUGH:
+Remove the pie crust from the fridge and allow it to stand on the counter for about 10 minutes. I always find this helps with rolling it out. Begin to roll the dough, being sure to rotate it every so often to avoid sticking, to a 13-inch round. Wrap the dough around the rolling pin and unroll it over a 9-inch pie dish. Gently fit the dough into the bottom and up the sides of the pie dish. Trim the dough around the pie tin, leaving a 1 1/2-inch overhang (this is important if you want a nice crimp). Tuck the overhang under itself all the way around. Rest your right thumb on the edge of the pie crust and using your left hand, shape a v. Push the two together, creating a large crimp. Work your way around the entire pie crust until you’re done. Transfer to the freezer or fridge.
+TO MAKE THE BLACK BOTTOM:
+Preheat to 350 degrees F.
+Add the chocolate to a small bowl. In a small saucepan, add the heavy cream and heat until very hot to the touch (about 130 degrees F). Immediately pour the heavy cream on top of the chocolate and allow it to stand for 2 to 3 minutes. Then, whisk the chocolate and cream together until very smooth.
+Pour the ganache into the pie crust and smooth it out with the back of a spoon to create an even layer being sure to come up at least halfway up the sides. Transfer the pie crust to the freezer to chill for 15 to 20 minutes.
+TO MAKE THE FILLING AND TO BAKE:
+In a medium bowl, whisk together the brown sugar, all-purpose flour, melted butter, Karo® Light Corn Syrup, eggs, vanilla extract, apple cider vinegar, and kosher salt.
+Remove the pie shell from the fridge and add the coconut in an even layer to the bottom followed by the pecans. Pour the filling over the pecans, coconut, and ganache. Brush the edges of the pie crust with egg wash and place on a baking sheet. Transfer to the oven to bake for about 55 minutes to 1 hour, until the center has set (it may rise slightly and be slightly jiggly). Be sure to check on it periodically throughout the baking process—if at any time the crust gets too brown, you can place a piece of foil over it to stop the browning.
+Allow it to cool completely, at least 2 to 3 hours, before slicing it. Serve with whipped cream or ice cream.
